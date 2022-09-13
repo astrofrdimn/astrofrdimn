@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ali fardimani
+- 👀 I’m interested in study astronomy;physics;math;programing
+- 🌱 I’m currently learning icdl;python;math and...
+- 💞️ I’m looking to collaborate on nothing :)
+- 📫 How to reach me : I'll never tell you +_+
